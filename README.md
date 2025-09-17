@@ -2,7 +2,7 @@
 
 **`Desenvolvedoro FullStack`**
 
-Me chamo Larissa Vitória Kich, tenho 20 anos e sou natural do Rio Grande do Sul. Concluí o ensino médio no IFRS, com o curso técnico em informática. Atualmente, estou cursando Análise e Desenvolvimento de Sistemas na PUCRS. Sou apaixonada por tecnologia e compartilho meu conhecimento através do meu canal no YouTube "[ I.mJimmY ](https://www.youtube.com/@I.mJimmY)", onde ensino a criar projetos web, e também através do Instagram, com o perfil chamado "[J.immy.y](https://www.instagram.com/j.immy.y_)".
+Me chamo Larissa Vitória Kich, tenho 23 anos. Técnico em informática. Atualmente, estou cursando Engenharia Informatica  e Desenvolvimento de Sistemas. Sou apaixonada por Photography | 🎬 Videography | 🌍Explore e compartilho meu conhecimento através do meu canal no YouTube "[ I.mJimmY ](https://www.youtube.com/@I.mJimmY)",  e também através do Instagram, com o perfil chamado "[J.immy.y](https://www.instagram.com/j.immy.y_)".
 
 <p align="left">
     <a href="https://www.youtube.com/@I.mJimmY?sub_confirmation=1">
